@@ -1,1 +1,1 @@
-<img src="https://tikolu.net/i/trjez" width="100%">
+<img src="https://tikolu.net/i/jjgzy" width="100%">
